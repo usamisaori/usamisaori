@@ -7,5 +7,5 @@
 >🕯️**kindle a light** in the darkness of mere being.
 
 <div align="center" width=300>
-🗿 🪞 🪁 🎀 🦄 ⚜️
+🧩 ⚓ 🪁 🎀 🦄 ⚜️
 </div>
