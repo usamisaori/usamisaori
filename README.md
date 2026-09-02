@@ -2,9 +2,9 @@
 
 > As far as ✨ we can discern 🔭,
 > 
-> the *sole purpose* of human existence👨🏻‍🚀 is to
+> the *sole purpose* of human existence 👨🏻‍🚀 is to
 > 
->🕯️**kindle a light** in the darkness of mere being.
+>🕯️ **kindle a light** in the darkness of mere being.
 
 <div align="center" width=300>
 🧩 ⚓ 🕊️ 🔅 🦄 ⚜️ 🧭
